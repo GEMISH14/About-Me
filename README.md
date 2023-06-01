@@ -1,5 +1,2 @@
-- 👋 Hi, I’m Jeet Joshi (@Gemish14)
-- 👀 I’m interested in Computers
-- 📖 I’m currently pursuing MCA at VJTI, Mumbai
-- 🎓 I'm a graduate with BCA degree
-- 📷 I'm like doing Mobile Photography 
+Play this video to know me...
+https://starwarsintrogenerator.com/scroller?u=2kmf79ds
